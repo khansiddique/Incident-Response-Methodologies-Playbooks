@@ -10,6 +10,7 @@ Source: https://lnkd.in/eudq_jJi
 Thanks to Societe Generale
 
 ✅Worm Infection: https://lnkd.in/ez-kq98Y
+
 ✅Social Engineering: https://lnkd.in/e_FJbxDP
 ✅Information Leakage: https://lnkd.in/eeN8KX8g 
 ✅Insider Abuse: https://lnkd.in/ep4p_THk 
